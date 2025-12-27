@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/gx0crr.gif)
 
-hi... i'm bpm ^-^ if that sounds corny as hell then call me lukas
+hi~~~ i'm bpm ^-^ if that sounds corny as hell then call me lukas
 
 - on and off player, i take frequent hiatuses from ponytown (the internet in general), both because my mental health frequently dips to rock bottom... and that i have better shit to be doing. if we know each other and u wanna contact me outside of ponytown, then ask for my discord
 - c+h allowed if u ask, otherwise i'll be moving
